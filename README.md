@@ -15,7 +15,7 @@ I am an aspiring **Cybersecurity Specialist** currently studying about developin
 If you are an industry professional, classmate, or recruiter, feel free to reach out!
 
 -  **Email:** `feeling@afra.id`
-- **LinkedIn:** [://linkedin.com](https://www.linkedin.com/hv3n)
+- **LinkedIn:** [://linkedin.com](https://www.linkedin.com/in/hv3n)
 
 ---
 *“Education is the passport to the future, for tomorrow belongs to those who prepare for it today.”*

@@ -14,7 +14,7 @@ I am an aspiring **Cybersecurity Specialist** currently studying about developin
 ###  Connect With Me
 If you are an industry professional, classmate, or recruiter, feel free to reach out!
 
--  **Email:** `feeling@afra.id`
+-  **Email:** `hv3n@e.rip`
 - **LinkedIn:** [linkedin](https://www.linkedin.com/in/hv3n)
 
 ---
